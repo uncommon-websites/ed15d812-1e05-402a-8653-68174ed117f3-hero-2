@@ -1,0 +1,2 @@
+# ed15d812-1e05-402a-8653-68174ed117f3-hero-2
+Hero section variant 2 for ed15d812-1e05-402a-8653-68174ed117f3
